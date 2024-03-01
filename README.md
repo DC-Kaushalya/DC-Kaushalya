@@ -7,7 +7,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=dc-kaushalya&label=Profile%20views&color=0e75b6&style=flat" alt="dc-kaushalya" /> </p>
 
-- 📫 How to reach me **chathuranganikaushalya21@gmail.com**
+- 📫 How to reach me **dc.chathu9@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
